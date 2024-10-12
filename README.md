@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @varjithsanjay
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning AI/Tech
-- 💞️ I’m looking to collaborate on best devolopers 
+- 💞️ I’m looking to collaborate on learning 
 - 📫 How to reach me hello.varji@gmail.com 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I know nothing
